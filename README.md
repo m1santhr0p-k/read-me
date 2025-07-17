@@ -13,4 +13,4 @@
 
 |🗡️| aesthetics: grunge, goth, weirdcore, warcore, trenchcore, sovietwave
 
-|🎸| fav bands: rammstein, kanonenfieber, 1914, batushka, patriarkh
+|🎸| fav bands: rammstein, kanonenfieber, 1914, batushka, patriarkh, molchat doma, kino
