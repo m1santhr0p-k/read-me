@@ -1,6 +1,10 @@
 # read-me
 •*+ hello! +*•
 
+⛔️ - DNIUF/DNI
+
+🌙 - Active/Offtab
+
 |🚫| do not copy my skins. i work very hard to make them.
 
 |⛓️| i don't talk much. i'm more of a listener but i will say something if i have something to say.
