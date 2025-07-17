@@ -11,6 +11,6 @@
 
 |🪖| interests: attack on titan, metal music, history, nature, war movies
 
-|🗡️| aesthetics: grunge, goth, weirdcore
+|🗡️| aesthetics: grunge, goth, weirdcore, warcore, trenchcore, sovietwave
 
 |🎸| fav bands: rammstein, kanonenfieber, 1914, batushka, patriarkh
